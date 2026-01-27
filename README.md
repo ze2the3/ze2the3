@@ -14,6 +14,13 @@
          𝘪 𝘩𝘢𝘷𝘦 𝘴𝘤𝘩𝘪𝘻𝘰𝘱𝘩𝘳𝘦𝘯𝘪𝘢, 𝘪 𝘥𝘰𝘯𝘵 𝘵𝘢𝘭𝘬 𝘢𝘣𝘰𝘶𝘵 𝘪𝘵 𝘮𝘶𝘤𝘩
       <br>
       <br>
+      <img width="1640" height="554" alt="New Project (7)" src="https://github.com/user-attachments/assets/37c2068c-b90d-4955-9e50-587c8c6a3685" />
+      <br>
+      <br>
+      dni if your gonna bitch about everything
+      <br>
+      yes i kin ze how could you tell
+      <br>
       <br>
 </div> <div align="right">​🇧​​🇺​​🇹​ ​🇮​ ​🇹​​🇭​​🇮​​🇳​​🇰​ ​🇮​​🇲​ ​🇫​​🇷​​🇪​​🇦​​🇰​​🇮​​🇳​​🇬​ ​🇴​​🇺​​🇹! :<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/19c555ef-79e1-43da-a38c-2787d13b0f55" />　　　　　　　　　　　 `
     </div> <div align="center">
