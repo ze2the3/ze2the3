@@ -5,29 +5,36 @@
  $${\color{blue}\small\texttt{ THEY\ SAY\ YOU'RE\ STUPID-\ {}}}$$
 </p>
 <br>
+<img align="left" width="400" height="400" alt="New Project (11)" src="https://github.com/user-attachments/assets/446528f0-3d66-48d7-b86e-b10ea23bed1a" />
+<table>
+  <tr>
+    <th>
+      $\color{lightskyblue}{\textsf{ Ze / Zabooboo3 }}$ <br>
+      $\color{lightskyblue}{\textsf{ Any except she }}$ <br>
+      <br>
+      $\color{lightskyblue}{\textsf{ Diagnosed Autism + Schizophrenia, be careful }}$ <br>
+      $\color{lightskyblue}{\textsf{ I heavily kin Ze, icrcl  about doubles. (my brother just another me) }}$ <br>
+      $\color{lightskyblue}{\textsf{ (my brother just another me) }}$ <br>
+</th>
+</tr>
+</table>
+<img align="right" width="400" height="400" alt="New Project" src="https://github.com/user-attachments/assets/6a151f0a-0001-4518-8f38-dffdc9fe10dc" />
+<table>
+  <tr>
+    <th>
+      $\color{lightskyblue}{\textsf{ DNI if you are }}$ <br>
+      $\color{lightskyblue}{\textsf{ ! ------------------- ? }}$ <br>
+      $\color{lightskyblue}{\textsf{ basic dni }}$ <br>
+      $\color{lightskyblue}{\textsf{ pro/darkship }}$ <br>
+      $\color{lightskyblue}{\textsf{ generally a bitch about everything (aka sensitive as HELL) }}$ <br>
+      <br>
+      $\color{lightskyblue}{\textsf{ i also just. block freely. }}$ <br>
+      $\color{lightskyblue}{\textsf{ my comfort is worth more than whatever i blocked you over }}$ <br>
+</th>
+</tr>
+</table>
 <br>
-    </div> <div align="center">
-      　any except she 　 　:　  　16 y/o, iayor lol
-      <br>
-      <br>
-         𝘪 𝘩𝘢𝘷𝘦 𝘴𝘤𝘩𝘪𝘻𝘰𝘱𝘩𝘳𝘦𝘯𝘪𝘢, 𝘪 𝘥𝘰𝘯𝘵 𝘵𝘢𝘭𝘬 𝘢𝘣𝘰𝘶𝘵 𝘪𝘵 𝘮𝘶𝘤𝘩
-      <br>
-      <br>
-      <img width="1640" height="554" alt="New Project (7)" src="https://github.com/user-attachments/assets/37c2068c-b90d-4955-9e50-587c8c6a3685" />
-      <br>
-      <br>
-      dni if your gonna bitch about everything
-      <br>
-      (oh and dark/proship n basic dni, most of the forsaken fandom)
-      <br>
-      <br>
-      yes i kin ze how could you tell
-      <br>
-      <br>
-      <br>
 <p align="left">
  $${\color{blue}\small\texttt{ THAT\ YOU\ HAVEN'T\ GOT\ A\ BRAIN!\ {}}}$$
-</p>
 <br>
-<br>
-<img width="355" height="105" alt="cd583828_original" src="https://github.com/user-attachments/assets/94c2f9b9-0234-417f-8a4f-d6c3650e3e28" />
+  <br>
